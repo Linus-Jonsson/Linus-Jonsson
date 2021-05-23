@@ -8,7 +8,7 @@ If someone would have asked me about programming a few years back I would have p
 
 I want to become a skilled, creative and versatile programmer. Nothing more, nothing less.
 
-Don't be afraid to contact me with any questions or suggestions.
+I appreciate your visit, don't be afraid to contact me with any questions or suggestions.
 
 Best regards,
 
